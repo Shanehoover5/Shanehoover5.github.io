@@ -1,1 +1,1 @@
-# Shanehoover5.github.io
+My favorite destinations
